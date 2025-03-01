@@ -1,3 +1,11 @@
 # Intro-
-![two deer touching snouts](https://files.catbox.moe/8wkgxn.jpeg)
- I usually hang out in the library or with my oomf DNI; Basic dni crit… ,Endos/Disability fakers,Creeps. INT!! TMA TSP TMAGP BMC LIFE SERIES HERMIT CRAFT HANNIBAL HOUSE MD MOUTHWASHING, ETC..
+⠀ ⠀ ⠀ ⠀ ⠀
+⠀⠀  : ¨·.·¨ :ㅤ
+⠀ ⠀ `· .⠀ ⠀ 𝓁𝑖𝑡𝑡𝑙𝑒⠀𝒶𝑛𝑔𝑒𝑙 ⠀
+⠀![two deer touching snouts](https://files.catbox.moe/8wkgxn.jpeg)
+
+@ — WILL ?!  🦗
+minor 🐌 ₊˚.ꪆ.     HE/THEY/IT/DEER 🍂
+  ───── ⋆ ─────
+@ ACEY & @ CONNOR .ᐟ
+     ___ ★₊˚﹟’ Oh arthur ’ 🦌
